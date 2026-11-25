@@ -200,6 +200,6 @@ https://www.linkedin.com/in/harsh-singh-516611295/
 
 * GitHub (Tanya Bhatia)
 https://github.com/bhatiatanya81-code
-* LinkedIn (Harsh Singh)
+* LinkedIn (Tanya Bhatia)
 https://www.linkedin.com/in/tanya-bhatia-434b55324/
 ---
