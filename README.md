@@ -197,4 +197,9 @@ https://www.linkedin.com/in/vinayak-sharma-24a8aa384/
 https://github.com/Harsh0012-ux
 * LinkedIn (Harsh Singh)
 https://www.linkedin.com/in/harsh-singh-516611295/
+
+* GitHub (Tanya Bhatia)
+https://github.com/bhatiatanya81-code
+* LinkedIn (Harsh Singh)
+https://www.linkedin.com/in/tanya-bhatia-434b55324/
 ---
